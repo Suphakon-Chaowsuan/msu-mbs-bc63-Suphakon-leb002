@@ -1,1 +1,1 @@
-# msu-mbs-bc63-Suphakon-leb002
+# msu-mbs-bc63-Suphakon-lab002
